@@ -2,6 +2,8 @@
 
 **We Make Apps !**
 
+![appdong_banner](https://user-images.githubusercontent.com/88179771/193100827-17165fe3-61b7-4a68-946b-cca2ffaa454a.gif)
+
 
 #### 🙋‍♀️ introduction
 
