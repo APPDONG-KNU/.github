@@ -1,6 +1,6 @@
 ### 👋 Hi, it's AppDong
 
-![appdong_banner](https://user-images.githubusercontent.com/88179771/193100827-17165fe3-61b7-4a68-946b-cca2ffaa454a.gif)
+![appdong_mv](https://user-images.githubusercontent.com/88179771/193101882-1b3083fa-88ff-4688-bd0d-51eaeb1d51db.gif)
 
 #### 🙋‍♀️ introduction
 
